@@ -6,6 +6,6 @@
 
 #### Apart from research, I am interested in science communication, digital art and learning to code.
 
-#### Website: https://bishwaruppaul.github.io/
+#### Website: https://www.bpaul.co.in/
 #### Blog: https://bishwarup-paul.medium.com/
 #### Twitter: https://twitter.com/digantabiz
