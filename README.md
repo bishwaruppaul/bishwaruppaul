@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### I am currently a Science Writer at JoVE.
+### I am currently a Science Editor at JoVE.
 
 #### Apart from work, I am interested in science communication, digital art and learning to code.
 
